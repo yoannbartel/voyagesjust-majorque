@@ -1,0 +1,2 @@
+# voyagesjust-majorque
+GitHub Pages
